@@ -1,6 +1,6 @@
 # T D Harshith Reddy
-Hello guys, let me introduce myself
-I am student of IIT Bombay pursuing M Tech Aerospace
+I LOVE YOU BABE 
+FROM YOUR CRAZY BOY FRIEND HARSHITH
 
 <img src="https://i.ibb.co/QmPcz0S/IMG-20211128-WA0004.jpg" alt="Flowers in Chania">
 
