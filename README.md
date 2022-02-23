@@ -2,6 +2,6 @@
 Hello guys, let me introduce myself
 I am student of IIT Bombay pursuing M Tech Aerospace
 
-<img src="https://ibb.co/0JCX854" alt="Flowers in Chania">
+<img src="https://i.ibb.co/QmPcz0S/IMG-20211128-WA0004.jpg" alt="Flowers in Chania">
 
 
